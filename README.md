@@ -13,5 +13,5 @@ My favorite character is jo snow because he is brave, loyal, and determined.
 
 Rating
 I give this series 10/10
-this series is entertaining and full of surprises!
+this series is entertaining and full of surprises! 
 
